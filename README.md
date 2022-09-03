@@ -13,8 +13,8 @@
 ## Меняйте, развивайтесь, учитесь!
  
 
+![фото1](https://user-images.githubusercontent.com/111174750/188264241-b7fa637b-5ede-485d-ade5-915a28b790d4.jpg)
 
 
 
-![IMG-9afcbe22d6d9c711b4afa7bdb718590b-V (1)](https://user-images.githubusercontent.com/111174750/188264082-a2d0f0d1-14d1-49e4-82be-4c1ec0be06d0.jpg)
 
